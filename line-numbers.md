@@ -6,7 +6,7 @@
 #### 6
 #### 7 I was there but I am here now
 #### 8
-#### 9 Github is really good
+#### 9 Github is really awesome
 #### 10
 #### 11
 #### 12
